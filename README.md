@@ -66,5 +66,9 @@
    ⁠♡ ℰternal Sugar Cookie's 1# fan .! (I guess . .)
    
    ⁠
-   ⁠♡ ℳinor, please be careful .!
+   ♡ ℳinor, please be careful .!
+
+
+   ♡ 𝒯urkish IRL .! feel free to int if 🇹🇷  >ᴗ<       ![bringer of sloth lyre](https://github.com/user-attachments/assets/4d02a6f7-11c1-449b-b053-fa3501cc43a2)
+
 
