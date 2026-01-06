@@ -42,8 +42,8 @@
 ![pink sparkle](https://github.com/user-attachments/assets/f4da362b-13ea-49fa-9e98-c4c0acf40517)
 
 
-₊ ⊹ . ⟡ Please stay SFW. i can sometimes feel uncomfortable when topics switch to NSFW things, but you can keep talking if i talk back about the topic .!    (˶ᵔ ᵕ ᵔ˶)
+₊ ⊹ . ⟡ 𝒫lease stay SFW. i can sometimes feel uncomfortable when topics switch to NSFW things, but you can keep talking if i talk back about the topic .!    (˶ᵔ ᵕ ᵔ˶)
 
 
                                                                                                             
-₊ ⊹ . ⟡ Do not start fights out of all sudden, things can go serious and more serious.               ![headpat esc](https://github.com/user-attachments/assets/71a0bab5-1d31-4bfd-bb4d-a10cf77e4aff)
+₊ ⊹ . ⟡ 𝒟o not start fights out of all sudden, things can go serious and more serious.               ![headpat esc](https://github.com/user-attachments/assets/71a0bab5-1d31-4bfd-bb4d-a10cf77e4aff)
