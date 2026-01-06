@@ -1,4 +1,4 @@
-<img width="500" height="35" alt="pearls" src="https://github.com/user-attachments/assets/758eed7f-c6c8-4439-ae35-880bd17d1151" />
+
                                                                                                                                            
                                                                                                                                            
                                                                                                                                            
