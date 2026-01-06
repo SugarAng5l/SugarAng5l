@@ -13,6 +13,9 @@
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ -`♡´- ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
+![pink sparkle](https://github.com/user-attachments/assets/c5b28536-872d-4f6d-b0a3-45c4bacd3d45)
+
+
 ⊱ ۫ ׅ ✧ 𝒲elcome my dear .! Here are the rules id love when you take seriously . . . ༉‧₊˚.
 
 <img width="128" height="128" alt="esc gif waving" src="https://github.com/user-attachments/assets/b1ddec24-705f-4d12-9ba5-67b0c2845dac" /> ➤ 𝓑efore you read : this only applies to people im not that close or strangers, my friends and loved ones dont have to pay attention, (but please do . .)
