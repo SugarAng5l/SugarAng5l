@@ -53,10 +53,14 @@
 𝒜lso please please id love to if youll want to match .!!  (˶ˆᗜˆ˵)  ![us core stamp](https://github.com/user-attachments/assets/37a0fc8e-41cd-4e9a-9d5e-f161185d4ff7)
 
 
-![esc and hbc ohmygod cuties](https://github.com/user-attachments/assets/59c3c953-2053-4a70-8606-953eb06ffa2a)
+![esc closing eyes](https://github.com/user-attachments/assets/92a4cb25-4c0e-413b-9b87-ac22f6df0567)
+
 
 
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ⊹₊˚‧︵‿₊୨ About me.! ୧₊‿︵‧˚₊⊹ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
+   ⁠♡ ℰternal Sugar Cookie's 1# fan .! (I guess . .)
+   ⁠
+   ⁠♡ ℳinor, please be careful .!
 
