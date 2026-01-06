@@ -50,6 +50,9 @@
                                                                                                                                                                                             
  ₊ ⊹ . ⟡ 𝐼ll try to be nice and comforting as possible. But please give attention when somethings wrong.
 
+
+  ₊ ⊹ . ⟡ 𝒟o NOT threat anyone / me etc. this is disgusting and should NOT be tolerated. (SA, r4pe and death threats etc.)
+
 𝒜lso please please id love to if youll want to match .!!  (˶ˆᗜˆ˵)  ![us core stamp](https://github.com/user-attachments/assets/37a0fc8e-41cd-4e9a-9d5e-f161185d4ff7)
 
 
@@ -61,6 +64,7 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ⊹₊˚‧︵‿₊୨ About me.! ୧₊‿︵‧˚₊⊹ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
    ⁠♡ ℰternal Sugar Cookie's 1# fan .! (I guess . .)
+   
    ⁠
    ⁠♡ ℳinor, please be careful .!
 
