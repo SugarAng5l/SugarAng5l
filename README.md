@@ -47,3 +47,13 @@
 
                                                                                                             
 ₊ ⊹ . ⟡ 𝒟o not start fights out of all sudden, things can go serious and more serious.               ![headpat esc](https://github.com/user-attachments/assets/71a0bab5-1d31-4bfd-bb4d-a10cf77e4aff)
+
+
+
+
+
+ 
+ ₊ ⊹ . ⟡ 𝐼ll try to be nice and comforting as possible. But please give attention when somethings wrong.
+
+𝒜lso please please id love to if youd want to match .!!  (˶ˆᗜˆ˵)  ![us core stamp](https://github.com/user-attachments/assets/37a0fc8e-41cd-4e9a-9d5e-f161185d4ff7)
+
