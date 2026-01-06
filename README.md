@@ -50,5 +50,13 @@
                                                                                                                                                                                             
  ₊ ⊹ . ⟡ 𝐼ll try to be nice and comforting as possible. But please give attention when somethings wrong.
 
-𝒜lso please please id love to if youd want to match .!!  (˶ˆᗜˆ˵)  ![us core stamp](https://github.com/user-attachments/assets/37a0fc8e-41cd-4e9a-9d5e-f161185d4ff7)
+𝒜lso please please id love to if youll want to match .!!  (˶ˆᗜˆ˵)  ![us core stamp](https://github.com/user-attachments/assets/37a0fc8e-41cd-4e9a-9d5e-f161185d4ff7)
+
+
+![esc and hbc ohmygod cuties](https://github.com/user-attachments/assets/59c3c953-2053-4a70-8606-953eb06ffa2a)
+
+
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ⊹₊˚‧︵‿₊୨ About me.! ୧₊‿︵‧˚₊⊹ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
 
