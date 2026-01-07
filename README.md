@@ -63,7 +63,7 @@
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ⊹₊˚‧︵‿₊୨ About me.! ୧₊‿︵‧˚₊⊹ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-   ⁠♡ ℰternal Sugar Cookie's 1# fan .! (I guess . .)
+   ⁠♡ ℰternal Sugar Cookie's 1# fan / kinner .! (I guess . .)
    
    ⁠
    ♡ ℳinor, please be careful .!
@@ -71,4 +71,17 @@
 
    ♡ 𝒯urkish IRL .! feel free to int if 🇹🇷  >ᴗ<       ![bringer of sloth lyre](https://github.com/user-attachments/assets/4d02a6f7-11c1-449b-b053-fa3501cc43a2)
 
+
+   ♡ 𝒪mnisexual nerd . .  <img width="109" height="61" alt="omni" src="https://github.com/user-attachments/assets/b09c93ae-5ee7-447c-b685-9f8aac968f03" />
+
+
+
+   ♡ ℱav singer / bands : Massive attack, Lalleshwari Jane Kate Garside, (moot me if you listen to her im begging you .!) Mazzy star, Mitski, Lana dr, Jack stauber, Alex G, Black box recorder, Yaelokre, Antihoney, Sophie woodhouse, Adrianne Lenker, Saint avangeline, Boa, The cardigans, Fish in a birdcage, Radiohead, Big thief, Chris Isaak, TV girl, Britney spears, Lady gaga, The marias, Laufey, Mac demarco, MSI, Nirvana, The beatles, Marina a.t.d, Gwen stefani, Strange boutique, Bambi baker and more . . . ![pink sparkle tiny](https://github.com/user-attachments/assets/30307b97-6c4b-4749-bd0b-6b4e6a32c803)
+
+
+   <img width="2048" height="258" alt="fading polka" src="https://github.com/user-attachments/assets/b5b91f42-46ee-4f70-a87f-c96a0dddbad2" />
+
+
+
+   
 
