@@ -6,5 +6,7 @@ the fuck is this
 
 ugh
 
+why is everyone in this season ovelwhelmed with guilt and pity .
+
 
 ![heart divider down](https://github.com/user-attachments/assets/ce0aaa7f-0596-47c9-97d6-7e82c5c4cd70)
