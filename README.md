@@ -13,3 +13,8 @@ bye
 
 ![hugnry catterpllar](https://github.com/user-attachments/assets/68fd4d13-f3a1-49b4-abad-37a285d6a10d)
 
+<img width="97" height="50" alt="image" src="https://github.com/user-attachments/assets/1a7ca623-3600-4099-9995-762c487967ad" />
+
+<img width="97" height="50" alt="image" src="https://github.com/user-attachments/assets/674eb3af-5241-4635-90fa-b62559132584" />
+
+<img width="97" height="50" alt="image" src="https://github.com/user-attachments/assets/76428b42-2876-40f4-a3fe-f9f5470935fe" />
