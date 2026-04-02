@@ -8,6 +8,8 @@ bye
 <img width="1531" height="278" alt="fruit divider" src="https://github.com/user-attachments/assets/50430433-459d-4975-8f76-61aee2aceeb9" />
 
 
-hihihih
+                                   hhihihhihi hello please dont forget to drink water
+
 
 ![hugnry catterpllar](https://github.com/user-attachments/assets/68fd4d13-f3a1-49b4-abad-37a285d6a10d)
+
