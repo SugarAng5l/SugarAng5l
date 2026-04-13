@@ -19,6 +19,6 @@ bye
 
 <img width="97" height="50" alt="image" src="https://github.com/user-attachments/assets/76428b42-2876-40f4-a3fe-f9f5470935fe" />
 
-bye
+${{\color{#e76b4a}{\textsf{    how do we even code bro :sobs:    }}}}$
 <img width="400" height="300" alt="result" src="https://github.com/user-attachments/assets/b1c9cccc-f897-464d-a4fc-1005a6b8bbc2" />
 
