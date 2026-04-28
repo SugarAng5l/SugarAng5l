@@ -18,7 +18,8 @@ ${{\color{#ffff}{\textsf{    .    }}}}$
 
 ${{\color{#ffff}{\textsf{    .    }}}}$
 
-<img width="80" height="17" alt="eternal sugar beast graphic" src="https://github.com/user-attachments/assets/7b796786-9dfe-49a7-b413-866c318c7e4b" />
+
+
 
 
 
