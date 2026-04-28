@@ -3,8 +3,7 @@
 ${{\color{#ffff}{\textsf{    .    }}}}$  
 
 
-${{\color{#fdbbfe}{\textsf{    Your passions will only lead to suffering . . .    }}}}$   <img width="100" height="77" alt="eternals cloud graphic" src="https://github.com/user-attachments/assets/c684d42d-7708-4fd7-a209-0a6cbd39d0f2" />
-
+${{\color{#fdbbfe}{\textsf{    Your passions will only lead to suffering . . .    }}}}$   
 
 ${{\color{#ffff}{\textsf{    .    }}}}$
 
