@@ -37,7 +37,8 @@ ${{\color{#b1a384}{\textsf{    𝒴𝑜𝓊'𝓇𝑒 𝓂𝓎 𝒫𝓁𝒶𝓎�
 ${{\color{#ffffff}{\textsf{    .    }}}}$
 
 
-<img width="540" height="38" alt="image" src="https://github.com/user-attachments/assets/3c65cab5-3aea-4eb4-b029-36aeb184b428" />
+<img width="1200" height="80" alt="image" src="https://github.com/user-attachments/assets/545e6896-8709-41ed-afce-3597e97cba5a" />
+
 
 
 ${{\color{#ffffff}{\textsf{    .    }}}}$
