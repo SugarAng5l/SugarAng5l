@@ -5,6 +5,8 @@ umm so yes im very friendly PLS interact with me i love people
 bye
 
 
+${{\color{#ffffff}{\textsf{    .    }}}}$
+
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/631607e4-55f5-43d6-8fa2-368c33019686" />
 
 
@@ -35,7 +37,12 @@ ${{\color{#b1a384}{\textsf{    𝒴𝑜𝓊'𝓇𝑒 𝓂𝓎 𝒫𝓁𝒶𝓎�
 ${{\color{#ffffff}{\textsf{    .    }}}}$
 
 
+<img width="540" height="38" alt="image" src="https://github.com/user-attachments/assets/3c65cab5-3aea-4eb4-b029-36aeb184b428" />
 
+
+${{\color{#ffffff}{\textsf{    .    }}}}$
+
+${{\color{#ffffff}{\textsf{    .    }}}}$
 
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/9feded7b-9ff7-4af1-93b7-edaac0b075be" />
