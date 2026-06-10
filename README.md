@@ -22,7 +22,6 @@ ${{\color{#ffffff}{\textsf{    .    }}}}$
 
 ${{\color{#ffffff}{\textsf{    .    }}}}$
 
-${{\color{#ffffff}{\textsf{    .    }}}}$
 
 <p align="center">$\color{#e7ddca}{\textsf{ Nah, she didnt. }}$
 
