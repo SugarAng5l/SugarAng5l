@@ -23,7 +23,7 @@ ${{\color{#ffffff}{\textsf{    .    }}}}$
 ${{\color{#ffffff}{\textsf{    .    }}}}$
 
 
-<p align="center">$\color{#e7ddca}{\textsf{ Nah, she didnt. }}$
+<p align="center">$\color{#e7ddca}{\textsf{ Nah, she didnt. ♡ }}$
 
 ${{\color{#ffffff}{\textsf{    .    }}}}$
 
