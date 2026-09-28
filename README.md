@@ -26,3 +26,13 @@ ${{\color{#ffffff}{\textsf{    .    }}}}$
 
 
 ${{\color{#ffffff}{\textsf{    .    }}}}$
+
+
+putting random shit hi lol
+
+${{\color{#ffffff}{\textsf{    .    }}}}$
+
+
+${{\color{#ffffff}{\textsf{    .    }}}}$
+
+<img width="447" height="447" alt="image" src="https://github.com/user-attachments/assets/af6c6899-a794-4930-8017-ddbb1552d1f2" />
