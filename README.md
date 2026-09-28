@@ -14,9 +14,8 @@ ${{\color{#ffffff}{\textsf{    .    }}}}$
 ${{\color{#ffffff}{\textsf{    .    }}}}$
 
 
-<p align="center">
-  <img src="https://tenor.com" alt="The Virgin Suicides" width="400">
-</p>
+<img width="640" height="360" alt="the-virgin-suicides-lux-lisbon-gif-the-virgin-suicides-lux-l" src="https://github.com/user-attachments/assets/422f1258-9610-4a79-a08a-0684f6c243be" />
+
 
 
  
